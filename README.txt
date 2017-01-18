@@ -1,0 +1,1 @@
+Pozycja koñcowa.
